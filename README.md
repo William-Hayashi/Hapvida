@@ -26,4 +26,4 @@ A adoção de nossa solução apresenta as seguintes vantagens:
 Acreditamos que nossa solução é uma alternativa viável e eficiente para atender às necessidades de saúde de indivíduos com necessidades mais simples. Oferecemos um serviço prático, acessível e conveniente, que atende às expectativas dos pacientes e dos profissionais de saúde.
 
 
-Link do video:
+Link do video: https://www.youtube.com/watch?v=18yKJ17NncI
